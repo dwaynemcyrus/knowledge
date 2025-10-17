@@ -6,6 +6,12 @@
 ## macOS
 .DS_Store
 
+### macOS extras, only matter for external drives
+.AppleDouble
+.Spotlight-V100
+.Trashes
+.fseventsd
+
 ## WindowsOS
 Thumbs.db
 

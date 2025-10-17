@@ -5,3 +5,10 @@
 
 ## macOS
 .DS_Store
+
+## WindowsOS
+Thumbs.db
+
+## Optional
+*.tmp
+*.bak

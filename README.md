@@ -1,1 +1,1 @@
-This is my new master content vault.
+This is my new knowledge vault.

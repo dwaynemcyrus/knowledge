@@ -4,10 +4,10 @@ date: 2025-02-20T10:50:57
 title: Sea to Cross 1447
 status:
   - In Review
-description: 
+description: "" 
 collection:
   - Asks
-tags: 
+tags: []
 bookmark: false
 ---
 ### The Direction

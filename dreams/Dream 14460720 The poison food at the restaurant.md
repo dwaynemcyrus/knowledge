@@ -10,7 +10,6 @@ collection:
 tags:
   - food
   - poison
-bookmark: false
 private: false
 ---
 I sat at an outside restaurant with a who seemed like a friend who came after me to sit. Something happened with the chef in the kitchen so the friend went to the kitchen to help. After some time I got up and left. 

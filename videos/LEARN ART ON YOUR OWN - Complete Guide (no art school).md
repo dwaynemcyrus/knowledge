@@ -9,7 +9,6 @@ title: LEARN ART ON YOUR OWN - Complete Guide (no art school)
 subtitle: 
 collection:
   - Videos
-layout: Note
 sourceAuthor:
   - "[[Marc Brunet]]"
 sourceURL: https://www.youtube.com/watch?v=kWZm5e-mEoE

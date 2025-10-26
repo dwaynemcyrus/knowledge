@@ -1,15 +1,15 @@
 ---
 cuid: "20251001182445"
-date: "2025-10-01T18:24:45"
-dateUpdated: 
+date: 2025-10-01T18:24:45
+dateUpdated:
 status:
   - In Progress
-private: false
+private: true
 published: false
-aliases: 
-favorite: 
-title: "Tier 2 Offer Letter"
-subtitle: 
+aliases:
+favorite:
+title: Tier 2 Offer Letter
+subtitle:
 collection:
   - Documents
 tags:

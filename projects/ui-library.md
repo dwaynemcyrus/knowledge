@@ -21,3 +21,6 @@ To demonstrate **systems thinking through design translation** — bridging visu
 - **Tailwind CSS** driven by design-token JSON.  
 - Figma → Code synchronization workflow via exported variables.  
 - Storybook-style previews integrated directly into the portfolio.
+
+## Notes
+- Look into your Gestalt UI Hugo design of the past

@@ -17,8 +17,6 @@ tags:
 
 Tier 4 Onboarding Covenant — The Drill Deck
 
-Status: Active | Client-Facing (after payment)**
-
 Note: Covenant for men entering the Drill Deck. Sets tone, rules, and expectations.
 
   

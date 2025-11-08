@@ -1,0 +1,1 @@
+The traumas and emotional issues that men face with the lack of actual wholistic male guides need to be brought forward and addressed. A space is needed for boys and men to learn and be guided without the superficial ideals of what a man is. Emotional 😭 nyelligence and under work need to be made the new priorities and identities of what it is to be a man.

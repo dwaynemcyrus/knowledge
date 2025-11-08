@@ -1,0 +1,1 @@
+We have a bunch of hypocrites and surface level thinkers praying on lost men with no regards for their emotional wellbeing or providing any resources for recovering from trauma as a man. It is simply ignored. This men are used and fed band-aid after band-aid while pulling on their emotional pain to siphon more money out of their pockets while providing little benefit.

@@ -1,0 +1,216 @@
+---
+status: [in review]
+---
+## Tasks
+- [ ] Release The Delivery podcast, YouTube channel clips, The Delivery newsletter (encouragement focused)
+- [ ] Go through and respond to all of your DMs
+- [ ] Make the dedicated email available for women who want insights on their relationships, questions, feedback, concerns, and testimonials, etc.
+- [ ] Double check all of your TikTok settings and setup the subscription benefits
+- [ ] Make a list of what you need from the community to allow them to support you
+- [ ] Create a better structure to your lives with a set schedule that people can keep up with
+- [ ] Purchase a phone stand for recording with the iPhone on a desk/floor with tilts
+- [ ] Make 3 pinned videos presenting who you are, what the channel is about, things you offer to others to benefit  
+- [ ] What is PCOS diagnosis on women?
+- [ ] Look more into what male insecurity is?
+- [ ] Explore how the breakdown of nuclear family effects society as a whole the ripple effect all the way to laws and the government 
+- [ ] Get very clear on the differences between gender and sex by definition
+- [ ] Get clear on the definitions of prostitution, whores, hoe, celebacy, virgin, chaste
+## Notes
+- [[The Delivery Overview]]
+	- 2-3 episodes per week
+	- concise episodes that are 10-15 minutes each
+	- content is scenarios, questions, etc.
+- [[The Delivery Newsletter]]
+	- encouragement focused
+- Focus on the 1v1 conversations for your lives as it's much better to follow and digest, treat them as highlights from each live
+- Have rules for the guests before you open up the panel for discussion
+## Content Ideas
+- Makeup is lying, the biggest lie and men have accepted it though we are not the biggest fan when done in extremes
+- Being too pretty when it comes to getting a man
+- Ep5 Blind sided paid content access for women breakdown of dating shows
+- Do reactions and breakdowns to your own content
+- Content that is supportive of young women who are marriage minded
+- Do an episode explaining and defining what being a whore is and its history
+
+## Timestamps
+- 0520 Women met a guy based on my advice and I encourage them
+- 0630 Clubs as a place for extracting resources from men
+- 0700 Woman stood up and I give advice
+- 1050 Advice on dealing with a woman who want more of his time (1417, 1520, 2020)
+- 1212 Chronically single and seeking a man, but has no luck (1320, 1607, 1802, 2000, 2210, 2400, 2548, 2917, 3550)
+- 1700 Advice on dealing with financially forgery from a person
+- 2020 Advice on how much should I allow a woman into my personal life
+- 2400 Being socially awkward, especially in relation to men as a group (2756, 3120)
+- 2500 Explaining "Living your best life..." title and how it applies to men and women, and how it relates to the modern women (3330, )
+- 2820 Explaining being too pretty and how men see it
+- 3030 The healing process of women explained lightly
+- 3330 How experience effects men and women and the issues of the modern women
+- 3622 Q: What measure does a man take to know whether a woman is enough? Men looking to qualify women rather then disqualify like women do
+### 00:37:40 Conversation with Samuel [[He's Promoting Hookup Culture]] (gay guy with partner) "I don't. sleep with women" "just be open about your status"
+- 3840 Explaining the loose living life
+- 4020 Regrets in random hookups with the contradiction, nothing good about having regrets
+- 4240 Women being hurt and the explanation of the lack of benefit in promiscuity
+- 4320 Back and forth about the chat and over-talking the host, while explaining the purpose of the chat, he looks like
+- 4450 Devaluing a person based on promiscuity
+- 4700 How men see body count explained with the widow analogy
+- 5100 The shame on sex, "[[I sleep around and cause no harm]]"
+- 5430 A woman's feelings vs intelligence and the difference between men and women when it comes to sex
+- 5640 The observable truth of women being denied as the guest tries to shame me, your composure is masterful
+### 00:58:45 Conversation with Fletch [[Community Shaming Survivors]] (wanting to be an untouchable) "therapy and leave the community"
+- 59:20 Declares her situation as a trauma survivor as child now trying to figure out where people like her fits into these conversation
+- 01:00:00 Conversation about other people not letting go of a woman who has experienced SA and judging her
+- 01:02:00 Cyrus bonds with a fellow survivor, it's not your fault
+- 01:03:00 Leave the community and therapy are your next steps, and doctors don't heal themselves
+- 01:05:00 The decisions of others as a survivor doesn't apply to us, explains the violation
+### 01:06:00 Conversation with Sumo [[Acknowledging Recovering Sex Workers]]
+- 01:08:02 SW who have chosen vs being forced into the industry
+- 01:10:00 Damage on the psyche of SW with acknowledgement of the hosts presentation
+### 01:11:40 Conversation with Brooke [[The Double Standard Women Accept]]
+- 01:12:00 Explaining the topic and title of the live
+- 00:13:30 Why are the women being judged for doing the same thing as men explained
+- 00:15:20 The greatest honour a woman can give a men and why is matter, and the women who cannot conceive
+- 01:17:40 Would you feel judged for being held to the same expectation men have on women's body
+- 01:19:01 Why the double standard exists and women being the ones who accept it 
+- 01:19:54 Men marrying a woman with a high body count, how do you feel
+- 01:21:00 "I respect your answer" Cyrus responds with things being practical
+- 01:22:30 STDs question being answered by Samuel 
+### 01:23:44 Alandrea Asking about women's pleasure and holding out
+- 01:25:00 Cyrus answering the question about satisfying a woman's sexual need while being chaste
+- 01:26:35 Getting married is not as difficult and Cyrus explains why
+- 01:29:00 Men denying the idea of a woman having sexual needs and how women can change the double standard, power in group
+- 3030 The double standard an the false idea of "more SA" would happen if women closed their legs
+- 3150 Men don't care and women's collective power to get men to fall in line socially
+- 3300 We want the D, and men not finding promiscuous women attractive for marriage
+- 3440 Women choosing to sleep dusty men and risk pregnancy
+- 3551 What happened to women having standards and marriage minded men not being able to satisfy their wives 
+- 3730 How does a woman vet for a mans sexual abilities
+- 3805 Women being slaves to their sexual desire and is this behaviour benefiting women as a whole
+- 3926 Women being promiscuous coming at a great cost
+- **01:39:40 Samuel kicking in on encouraging promiscuity and the reality of feeling shame**
+	- 4141 Men will still sleep with you but we wont marry and thats the issue married minded men don't want promiscuous women
+	- 4250 Promoting the promiscuity... and speaking up for women as a man who is into man and the differences between men and women vetting
+- **01:44:00 Alandrea Brings up men needs to take on responsibility for a women's decision**
+	- 4535 Men not wanting promiscuous women is somehow new
+	- 4620 Cyrus explaining the "newness" about men having a shared stance, mens desire for purity is never going to change
+	- 4816 Women being influenced by the media to be promiscuous and men's "new collective agreement"
+	- 4917 Men's requirement have not changed, what has changed was women no longer educating the younger women on men
+	- 5100 Women go ask your older women why you were not educated on men and how to position myself for marriage
+	- 5130 Samuel making another push for sexual desires
+	- 5240 Men's want are not about insecurity
+	- 5330 Women get ran through... and women allow it Alandrea choked and women allowing themselves to be devalued
+	- 5500 So women never know being loose was not beneficial to them
+	- 5627 She knew sleeping with too many women is wrong, but not that it effects their value for marriage
+	- 5711 Do men get insecure about pleasing their wife, then asks Samuel the gay guy... and men being torn up about body count
+	- 5845 The focus being so set on sexual desire for a woman who wants marriage
+- 02:00:00 Samuel chiming in about men not caring about body count
+### 02:01:00 Conversation with Kelly chimes in.... "it goes both ways"
+- 0203 Yes this is a man silencing a women, and welcomes Kelly into the chat
+- 0450 There's bigger issues then promiscuity and people sleeping around since the dawn of time
+- 0543 Cyrus explains why this is a big issue and it boils down to creating families and its break down
+- 0745 Its not fair that men cheat
+- 0828 Are you Muslim... Cyrus explains point of view 
+- 0920 Why don't these lives speak on men and women being loose, and the waste of a mans life and women holding a heavier burden then men
+- 1115 You are women blaming.... bad men couldn't sleep with women if they didn't allow it, women are the source why do women want to keep opening their legs for sex
+- 021300 Kevin drops in to drop facts about men
+- 1340 Dropped Samuel he has an emotional response
+- 021400 Back to Kelly about stopping at the source
+	- 1459 The reality of prostitution today....
+	- 1536 Its mens fault we are meant to lead... so why are women supporting the problem
+	- 1624 She tries to explain that its been an issue that other have caused skirting responsibility 
+	- 1727 Men's role... and women's role in being prostitution, she gets hit emotionally
+	- 1839 She tries to soften the blow, Cyrus comes back with reality
+	- 1850 Why can't women just stop entering into prostitution
+### 021920 Conversation with Staffz
+- 2025 Women's having a hard time settling down...the why
+- 2134 The confusion women give men by promoting sleeping around
+- 2229 Generation of F-boys... and free sex
+- 2325 Where the good men are 
+- 2404 The women popping plan b
+- 2457 The men don't want to settle down complaint
+- 2623 The men haven't changed... and the access to sex for men
+- 2715 Women competing with younger women and why men pick them
+- 2820 The older women in the bars watching the successful men
+- 2900 The force feeding of whores
+- 3010 Feeling bad for the women who genuinely want marriage
+### 023100 Conversation with Saika
+- 3130 Do men have the urge to have family and children
+- 3248 its rare for a man to want family and children explained by Cyrus
+- 3334 Women are in control of who is born not whether they get pregnant
+- 3420 Women messing up getting pregnant while still having "unplanned pregnancy"
+- 3554 why are women being so irresponsible with so much control
+- 3651 Women coming into power and not knowing how to manage it
+### 3754 Conversation with King
+- 3821 Men have always want sex with women, but are told to bring wives home
+- 3954 Men don't want hoes
+- 4018 Men want marriage it's our goal in most cases
+- 4052 Men are not insecure about other men, we have an issue with how it effects you as the women who has been promiscuous
+- 4208 As a woman don't you want to be what the man is looking for
+- 4300 The lonely 28/29 year old women, i 
+- 4350 I slept with him on the first date and he ghosted me
+- 4420 My friend has to settle and false info on what men find attractive
+- 4540 It's not settling it's recognition that her pool of men have changed, correcting her friends idea of what men prioritize in a wife
+- 4650 Men who are wealthy really don't care about your money and wont marry you if you're a hoe
+- 4748 Majority of women are seeking men outside of their league
+- 4821 Men who are attracted to powerful wealthy women
+- 4856 Women using friends and family to help them make up for the loss of their ability to secure a man and have a family the correct way
+- 4918 Single Mother vs Divorced Woman is not the same, Cyrus has cleared this up
+- 5037 Women who go to sperm donors, why are the men doing this to support desperate women
+- 5110 Woman chimes in and redpills another woman
+- 5252 "Hold on don't attack me" a woman know her purpose and dont' be a whore
+- 5339 The NPC..."You men" when its a woman talking about young women being told to be whores
+- 5426 Women being examples of whoring around for the daughters is teaching
+- 5540 Cyrus handling the over-talking
+### 5557 Conversation with Jasmine
+- 5622 It's a woman's responsibility to take care of her body, from the married man with kids, some brotherly love as well exiting King and Staff
+- 5730 Ladies be the example you want to see, women think twice about your listening too, do more research, don't go along to get along
+### 025936 Conversation with Maria
+-  030000 Women should do what they want with their body like men do and education thing from Staffs throws her off
+- 0129 Do you think men sleeping around is a good idea? Cyrus Asks
+- 0335 If men are doing stupid behaviour why would women copy, if she herself isn't doing it why encourage others?
+- 0442 Would you teach your son to not sleep around?
+- 0547 Pregnancy still happens irregardless of how safety you play it
+- 0649 Peer pressure in teens to have sex
+- 0742 Teaching to avoid rather just not do
+- 0838 The sisterhood is false, she dosn't encourage women to do and avoid what she avoids
+- 0927 Why wou;dn't you want other women to have respect for their body too, Cyrus gets blunt, she deflects to herself
+- 1040 Cyrus gives her advice on how men choose to marry, she doesn't want tot "waste" he 20s
+- 1155 Cyrus encourages educated woman to be studious about her personal decisions with research
+- 1334 Cyrus clarifies what men look for in a woman, your beauty even begins to loose value
+- 1419 Cyrus explains more about what men want
+- 1430 Guest vouches for older women as though they are the same as younger women
+- 1420 She doubles down on shaming.... really doesn't understand men and the young women in the chat are get offended, this is a young woman speaking like this as preparation for being older
+- 1710 Men gives her some more reason men choose younger women
+### 031807 Conversation with Char
+- 1829 Responds to Maria perspective 
+- 1923 Being conservative about relationships is a privilege if you are a man, but women are the ones lacking because of what grand mothers advice
+- 2050 What did you learn that's good about men? She struggles with the question embarrassingly so
+- 2211 Cyrus tries to help her understand how to answer a question, notice the weird and uncomfortable laughing she makes
+- 2413 Cyrus takes advantage to show and teach the issue men have in trying communicate
+- 2530 She claims Cyrus is responding from feeling
+- 2610 Fellow woman Jasmine chimes in to attempt to help her out in understanding
+- 2728 Now all of a sudden she understands what was being asked...is it because Cyrus is a man
+- 2846 She doesn't here anyone encouraging or telling women that promiscuity is a good thing
+- 3000 Chat suggests Kardi B and she tries to defend her influence, then she tries to play semantics and wordplay, Kardi B doesn't promote promiscuity
+### 03:30:30 Conversation with Tania
+- 3124 Young women being encouraged to become prostitutes and whores and an outlook on the women of the 60s as the catalyst for promiscuity train
+- 3328 being a boss chick is now the status quo, Kardi doesn't talk about freaky sex with her husband
+- 3428 Giving away sex is now scene as a power move because they think it works them same for them as it does for men
+- 3520 As a 46 Year old lays out the reality of being promiscuous in her 20s its not something she is proud of, and it caused wounds and trauma
+- 3644 Mention of the bitter mother...
+- 3739 Women have the power, and giving away your body is giving away your power
+- 3813 Cyrus elaborates on women sleeping with the same men...hypergamy
+- 3919 Char responds in defence of Kardi B and promiscuity
+- 4010 Char gets checked by Maria about Kardi B and she fumbles heavily
+- 4144 Cyrus clarifies that what she is describing is prostitution, and Char admits the message is wrong while defending it
+### 03:42:45 Conversation with ...
+- 4300 Don't you have to use your best life and wait till you're not single?
+- 4402 The hetero lifestyle seems very polarizing... and not in other types of relations like gays... Cyrus explains that other don't have the same concerns so its not relevant to them
+- 4607 Next question about owning sexuality...
+- 4723 What is the gain for a man or women sleeping around outside of pleasure, guest mentions that it is a healing using sex
+- 4825 Why have you not used sex as a form of healing?
+- 4900 Cyrus asks how does using sex help a woman heal? The mention of SA and hyper sexuality
+- 5100 A person who has experienced SA and in recovery is promiscuity beneficial to them?
+- 5151 Cyrus educates on the reality of survivors using sex....and the damaging advice women give other women about sexual relationships being a form of healing
+- 5354 We share about the being survivors... and the need for regaining an understanding and learningto be around other in the abscence of sex
+- 5540 Guest and Cyrus comes to a great understanding of one another, and Cyrus end with supportive feedback to a fellow survivor
+### 035730 Tania gives some words on sex not being a point of healing...unfortunately phone dies

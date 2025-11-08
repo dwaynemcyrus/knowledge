@@ -1,0 +1,63 @@
+
+##### Tasks to Complete
+This is a list of what it is you need to get done for the business. A **temporary** to do list just for today.
+- [ ] Add the last name for Marcus it's in here.
+- [x] Add the works from [[$100M Offers by Alex Harmozi]].
+- [x] Add the works from [[$100M Offers - The Lost Chapter by Alex Hormozi]].
+- [x] Add the works from [[$100M Offers - The Bonus Chapters by Alex Hormozi]].
+- [ ] Add the works from [[$100M Leads by Alex Harmozi]], the first two quadrants.
+- [ ] Add the works from [[The Prosperous Coach]].
+- [ ] Add the works from Dan Koe’s courses (identify and fill them in here).
+- [ ] Create your first promotion of your premium offering to the world based on the [[$100M Offers - The Bonus Chapters by Alex Hormozi]].
+- [ ] Define your sales process and ensure it demonstrates the value of your offer, this can be pulled from [[The Prosperous Coach]], may need to watch the YouTube video with the formula again.
+- [ ] Create your free offer, the lead and make sure it answers the question of why and add friction to increase the quality based on the [[$100M Offers - The Bonus Chapters by Alex Hormozi]].
+- [ ] Create your discount offer of a piece of your thing and not the entire thing based on the [[$100M Offers - The Bonus Chapters by Alex Hormozi]]. This will be part of the 2-step sales process, like [[JK Molina]] has setup with workshops. 
+- [ ] Create your Google Doc offer template that you will use to do your first 15-20 sales calls before you refine it and go no sales calls.
+- [ ] For your offers of consults, charge a no-show fee to incentivize people and show you are serious, it adds friction. Figure out how to implement the 5 Minute Appointment from [[$100M Offers - The Bonus Chapters by Alex Hormozi]] which can be paired with the Google Doc sales page.
+- [ ] Setup a functioning newsletter signup page on your website home using ConvertKit.
+	- [ ] Copy [this page](https://artwithflo.com/contact/thank-you/) for your signup reminder page.
+- [ ] This whole area the "Domain of Mastery" of writing needs to be reworked and simplified like the rest of the document.
+- [ ] Check the offers theres two version of the newsletter and you need a clear plan to be added to the Imagination vision chess pieces.
+- [ ] Write the vision and plan backwards for each stream of the business. 
+- [ ] Review and update [[Position Visions And Plans Backwards]] with clear wild imagination and plans, also rename it.
+- [ ] Change the coaching numbers to 120K CHF MRP
+- [ ] Merge the profiles of Marcus and refine it.
+- [ ] Update your Tools list to be the bare minimum needed
+- [ ] Update the list (Resources to Function) to include your study and second brain work
+- [ ] Have a paid newsletter part of the business to start 
+- [ ] Consider the MVP (under Earning of Money) to be your trial and or the needs to be changed and updated to a 6 call consults and a single 1-1 offering
+- [ ] Be sure to add a free day of calls for coaching =D to follow the ProsperousCoach formula, watch the video and make this system possible from YouTube
+- [ ] Update your financial freedom number under "Earning of Money" to generate 240'000 each month in profit working 4-6 hours each day
+- [ ] Review the list of "People to Emulate" here and in Reminders for a set list thats limited.
+- [ ] Revise the list under "People to Emulate" and be sure to include people that are from you unique interests in life and then wall yourself into their content areas for your consumption.
+- [ ] Decide what tot do with the pricing categories that you have listed under the Offer Sell and decide what to do with the Offer stack section
+- [ ] Under the "Big Solution" update the section of categories as an overview and link to the Delivery Vehicles.
+- [ ] Update the "Big Solution" section of links to the gravity shell
+- [ ] Under the "Big Solution" you need to update the Core Offer statement.
+- [ ] For the "Transformation Framework" section you want to breakout and expand on each element.
+- [ ] Review and update the profiles listed under your Target Audience 
+- [ ] You want to break your profiles under "Target Audience" down into Traumatized Man, Dating Woman, Artist Child, Lost Muslim
+- [ ] Write articles about each key aspect of the Problem under the "Big Problem" and the needed transformation.
+- [ ] Update the section "Way of Being"
+- [ ] Take the following points for the "Rules of Work" section and organize the under the headers below.
+- [ ] Write something similar to the SASN's 3 sentence bible for the community under the section of "The Brand"
+- [ ] Add the principles from [[Think and Grow Rich by]] and [[The Prosperous Coach by]].
+- [ ] Review every section of this document and move them above this task item.
+- [ ] Make a running list of the issues that come up with you customers and clients (Core > Adjacent > External Issues)
+- [ ] Add a link to your written vision of the work here for reference
+- [x] Possibly add a link to your Think and Grow Rich notes
+- [ ] Clean up and create an onboarding process for each new client
+- [ ] Write [[The Sovereign Manifesto]] as a public document on your website.
+- [x] Merge all of your other documents into this one, keep it simple!
+- [ ] Write your Google offer doc (includes group or 1-1 option)
+- [ ] Write the template of your necessary work to do everyday for your clients (ie. Workshops, Frameworks, Courses, Lectures, Seminars, Templates)
+- [ ] Write the template of work you have to do everyday for your marketing/advertising
+- [ ] Write the template of work you have to do for your own development
+- [ ] Develop the "First 28-30 days of new client is a sprint of consumption instead of getting everything at once. They don't need the entire process. With Whales they are busy, remove the fluff and give them what is necessary (What will give you more peace or clarity) in order to get started."
+- [ ] Write your statement out on paper and cover it in tape so that it is protected for you to carry around.
+- [ ] Create your mastermind group of 2 or more.
+- [ ] Finalize your habits and routine in calendar, this document, and your daily readings and local audio files to listen
+###### Website
+- [ ] Write a coaching intro pitch on the homepage in plain text with your newsletter form at the end. Make it similar to the ultimate coach.
+- [ ] Try: Trauma Survivors and Blocked Creatives Only / journey towards emotional growth and inner healing…
+- [ ] Update the copyright to be in full name and to “Get in Touch”.

@@ -1,0 +1,1 @@
+This book references the [[Roadmap to Becoming a Legendary Category King#Rejecting the Premise|Question #3]] and is inspired by the answers given, which have become its own inspiration for the book I am writing for men, *[[Reclaiming Honor - Healing the Emotional Wounds of Men by Dwayne Cyrus|Reclaiming Honor: Healing the Emotional Wounds of Men]]*.

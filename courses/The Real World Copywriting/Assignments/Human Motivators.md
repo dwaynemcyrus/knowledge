@@ -1,0 +1,55 @@
+## Pain of my Current State
+- No car or driver’s license
+- No job that I care for it, in fact the one I have now gives me so much stress I pulled out all of my facial hair
+- My body is weak as fuck and looks like a damn child
+- I sleep on my prayer mat and a layer of my comforter folded 
+- “My room” is a 5x4 space and half of that is my single desk with old fucking tech
+- I don’t have space for myself to breathe to exist
+- There is no natural light and the one bulb here is yellow and garbage
+- I feel absolute garbage and pissed of about myself because of how I live
+- I have lost my abilities to draw and paint even though it is what I crave most in my life, it’s fucked up that I keep denying this
+- I can’t stand the state of my life
+- I am living in a country that I have absolutely zero desire to be in
+- Literally I sit on hold that can be used to change my situation by my own hands and I don’t like an idiot
+- My brain has been set for sabotage like a dummy 
+- All I need is reliable money coming in each month to change fucking everything
+- I don’t show myself the love and discipline that is required to honour the body Allah has given me
+- My iman and practise of Islam has become incredibly weak and I near hate myself for it 
+- My body is so fucking small!!! 
+- My beard, my beautiful beard I destroyed 
+- Eating garbage is the normal for me
+- Surrounding by my mothers stuff stifling me
+- The mind that sits I my skull runs me and I’m it’s bitch
+- All of my tech is old and can die any minute 
+- I have so much talent and skill, yet I hide them and not reap the rewards from my efforts 
+
+## Desires of my Dream State
+- Live in another country on my own dollar where it is warm year round with lots of sun
+- All of my old belonging are gone thrown out including my clothing
+- My religious practice is in place and grounded as a non-negotiable
+- My 2 story loft apartment condo and my property the compound 
+- 2-3 wives all living together in harmony with each other and my children 
+- Money is never a stress I have much greater issues and stresses in my life
+- Self-sufficient in all ways
+- My sister and mother and my siblings and their kids my nieces and nephews are good
+- I’m dressed in regular Islamic custom made clothing of the best quality material all tailored
+- My body is jacked and grown adult vibes 
+- My eyesight, teeth, scalp, skin and toes are all fixed 
+- My mindset is all about living large and possibilities 
+- I am completely sovereign with multiple passports, drivers license, and cash currencies
+- I eat clean and healthy delicious my food is always fresh 
+- I am surrounded by great men we are building constantly
+- My mind is my slave it does what I want  at all times 
+- My skills and abilities in writing and illustration and painting are too tier
+- I am an influencer who flies around doing interviews in various countries 
+- My business are all on a form of autopilot brining me 10’s of thousands a day income
+- I am THE MAN
+- Well executed on YouTube and as a public speaker
+- I am a nomadic capitalist
+- Well known Islamic and NFT artist 
+- My body is beyond flexible like a yoga master and full of calisthenics strength and amazing marathon level stamina
+- Homes around the world Bogotá, Singapore/Thailand, Tiblisi Georgia, Hong Kong, Dubai, Japan, Malaysia, Medina 
+- Polyglot in French, Spanish, Arabic (Egypt, Moroccan, Standard)
+- Freestyling Hafiz Qur’an
+- World- renowned artist 
+- I am a producer NOT a worker

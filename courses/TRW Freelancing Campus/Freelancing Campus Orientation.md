@@ -1,0 +1,4 @@
+- Freelancing is picking a skill and exchanging it for money
+- You will have to try a few skills before you can take off
+- For immediate money go to the [[Make your First $100]]
+- The crucial part of freelancing is picking a skill

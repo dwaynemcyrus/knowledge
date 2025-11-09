@@ -1,4 +1,4 @@
-You are worthy of loving yourself like no other. 
+ You are worthy of loving yourself like no other. 
 
 There is a a time and place for you to take up space and it is right now and at all times. 
 

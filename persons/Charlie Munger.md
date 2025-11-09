@@ -1,0 +1,1 @@
+The vice-chairman of Berkshire Hathaway and a renowned investor known for his wit, wisdom, and application of mental models to business and life.

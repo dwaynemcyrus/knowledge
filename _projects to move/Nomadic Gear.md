@@ -1,0 +1,2 @@
+- [ ] Collapsible Straw (Metal or Glass) with Carry Case in a pack of 4
+- [ ] UniGlow cover top/jacket thing for the cold weather recommended by Justin Lee

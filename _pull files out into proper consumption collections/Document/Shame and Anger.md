@@ -1,0 +1,27 @@
+## Shame
+- Not being a earner and provider in my relationship with Patrice 
+- Slowing myself to betray myself to fit in with the role of husband to a misaligned woman to not being like my dad
+- Being in debt
+- Not having a care or driver’s license 
+- Not living in my own space
+- The state of body being small, weak, not manly
+- Not caring for my own health physical to mental
+- Lack of faith I have in my desires, mot putting in the proper focused work
+- State of my grooming, skin, beard, and scalp, and teeth
+- Sleeping in effectively a storage room
+- Allowing myself to oppressed in my home as a Muslim
+- Not having a wife and kids at my age
+- My lack of knowledge and proper practice of the Islamic fundamentals 
+- Now being able to draw or paint 
+- My father and the people he has hurt
+- The lack of affection and care my mother gave growing and even now
+- Leaving my sister to escape home 
+- Being sexually abused 
+- Daily self-destructive habits of self harm
+- Looking and porn and being remotely engaged sexuality with a Muslimah
+- Slipping as a Muslim, falling off my game and being lazy
+- Pickings at my skin and pulling of my hair in states of stress
+## Anger
+- At myself for my position in life as non money earner
+- My father for not preparing me to be a man 
+- My mother for not nurturing me as a child 

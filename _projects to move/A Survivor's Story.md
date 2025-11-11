@@ -1,2 +1,0 @@
-Vision
-key self portraits of the the child born origins child hurt, child abandoned, child found // the man now, recovering, the man lost, the man abused // series of images expressing the emotions and pains you and many men go through

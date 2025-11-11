@@ -1,1 +1,0 @@
-- [ ] Outline a writing program for Gabriel like the ones for Samira and Adam

@@ -1,2 +1,0 @@
-- This is a course series for men and boys. 
-- A retraining and healing of men's poor mental and emotional conditioning.

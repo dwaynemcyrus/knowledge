@@ -1,31 +1,32 @@
 ---
-cuid: "20251113202504"
-date: 2025-11-13T20:25:04
+cuid: "20251113203048"
+date: 2025-11-13T20:30:48
 dateUpdated:
-title: Essay C Test
+title: Essay B Test
 subtitle:
 status:
   - Draft
 growth:
-  - Evergreen
+  - Budding
 description:
 collection:
   - Essays
 genre:
-  - Reflective
+  - Descriptive
 length:
   - Long
 visual: false
 tags:
+  - belief
   - testessay
 bookmark: false
 resources:
-  - "[[anote-1c]]"
-  - "[[anote-2c]]"
+  - "[[anote-1b]]"
+  - "[[anote-2b]]"
 coverLink:
 coverAltText:
 coverCaptionText:
 aliases:
-  - Essay C
+  - Essay B
 ---
 We are going to backlink [[A Walled Garden Cultivates the Wife]].

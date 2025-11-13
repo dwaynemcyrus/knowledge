@@ -1,8 +1,8 @@
 ---
-cuid: "20251113202504"
-date: 2025-11-13T20:25:04
+cuid: "20251113203756"
+date: 2025-11-13T20:37:56
 dateUpdated:
-title: Essay C Test
+title: Essay A Test
 subtitle:
 status:
   - Draft
@@ -12,20 +12,17 @@ description:
 collection:
   - Essays
 genre:
-  - Reflective
+  - Comparative
 length:
   - Long
 visual: false
 tags:
-  - testessay
 bookmark: false
 resources:
-  - "[[anote-1c]]"
-  - "[[anote-2c]]"
 coverLink:
 coverAltText:
 coverCaptionText:
 aliases:
-  - Essay C
+  - Essay A
 ---
-We are going to backlink [[A Walled Garden Cultivates the Wife]].
+Here we are going to link [[aessay-b|Essay B]] and [[aessay-c|Essay C]] to be backlinks.

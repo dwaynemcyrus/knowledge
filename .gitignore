@@ -5,6 +5,7 @@ _process/
 .obsidian/
 .obsidian/.trash/
 .tmp
+.trash/
 
 ## macOS
 .DS_Store

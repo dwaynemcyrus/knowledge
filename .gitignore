@@ -1,11 +1,13 @@
 ## Personal
 _process/
+_templates/
 
 ## Obsidian
 .obsidian/
 .obsidian/.trash/
 .tmp
 .trash/
+
 
 ## macOS
 .DS_Store

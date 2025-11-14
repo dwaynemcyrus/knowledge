@@ -29,3 +29,5 @@ aliases:
   - Essay C
 ---
 We are going to backlink [[A Walled Garden Cultivates the Wife]].
+
+Take me now to [[aessay-b#Header Link Wiki|Essay B Header link]].
